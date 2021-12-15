@@ -1,7 +1,6 @@
 - Hi, I’m @BaileyJBehning
 - I’m interested in gaming, music and design
 - I’m currently learning at the coding bootcamp in the U of M
-- I’m looking to collaborate on ...
 - How to reach me 
    -brittanydoglover1@gmail.com
    -(651) 274-0359
